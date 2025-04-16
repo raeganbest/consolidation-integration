@@ -1,1 +1,4 @@
-# Consolidation-Integration
+# Twilight Zone Episode 1994 - Tower of Terror
+For this unit, I decided to make another audio narrative. There were a lot of things I didn't love about my first one, so I took the chance here to take an entirely different route. This narrative is based on the Tower of Terror ride at Orlando's Disney World, which is a ride I recently had the courage to finally ride (despite many previous trips to the park). The theming and story of the it is by far the best of all rides/attractions I have personally been on, and I wanted to try and encapsulate the feelings and atmosphere of the ride through my narrative.
+
+The main storyline of my audio is that a person comes home on a rainy day, and sits down to watch an episode of *The Twilight Zone*. From there, the narrative shifts to the actual episode itself, where we hear what happens when someone decides to enter the elevator at the Hollywood Tower Hotel. The narrative ends with the episode concluding, and the television turning off. 
