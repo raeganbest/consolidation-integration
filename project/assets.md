@@ -30,4 +30,4 @@ ____
 
 This audio contains potentially copyrighted material, "Tower of Terror: Elevator Motor/Shaft Sounds," published to SoundCloud by Victor Bic. The use of this audio has not been specifically authorized by the copyright owner, but I have determined this to be "fair use" of the copyrighted material as referenced and provided for in section 107 of the US Copyright Law. Audio is being used in its entirety strictly for academic purposes, as a means to show growth and devlopment within narrative building skills through audio mediums. This piece will not be disseminated publicly or outside the scope of Professor Ben Miller's Spring 2025 Composing Digital Media Course.
 
-Dialogue for the narration is credited to the Walt Disney Company and Disney Experiences. 
+Dialogue for the narration is credited to the Walt Disney Company and Disney Experiences, as posted [here](https://towerofterror.fandom.com/wiki/The_Twilight_Zone_Tower_of_Terror_(script)). 
