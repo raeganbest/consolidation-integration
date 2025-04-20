@@ -1,6 +1,6 @@
 AMB_M_City_Rain_Heavy.wav by conleec -- https://freesound.org/s/171981/ -- License: Creative Commons 0
 
-Background music performed by Justin Best
+Background music performed by Justin Best (00:31-00:59)
 
 elevator_doors_open_close.wav by magedu -- https://freesound.org/s/341534/ -- License: Attribution 4.0
 
